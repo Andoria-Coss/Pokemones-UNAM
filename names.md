@@ -1,3 +1,2 @@
 Buberto Bunzales Saurio
-
-David Pedroza Segoviano
+Andoria Coss
